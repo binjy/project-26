@@ -1,0 +1,2 @@
+First take to hamburger buns put the bottom one on a plate
+put the top on a napkin. Add letuce on top of the bottom bun,then add the hamburger meat,then add the cheese(1or 2 if wanted),then add the bacon(as many bacon strips you want it can also be put in peices if wanted),then add letuce on top,and one or to tomato then add a squirt of ketchup on top of it,and put the bun that was on the napkin in the top of the hamburger
